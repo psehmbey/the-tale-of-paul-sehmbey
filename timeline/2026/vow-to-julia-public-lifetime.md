@@ -73,7 +73,7 @@ Two terms, not two consecutive terms.
 *2026*  
 ![](../../media/youtube/songs/MazeOfMemories.mp3)  
 
-## Proof of Superman + Julia's Direction 🔝🙏
+## Proof of Superman + Julia's Direction 🙏🔝🫡
 ![](../../assets/shared/2026-01-29-shattered-boundary.png)  
 *January 29, 2026*  
 ![](../../media/youtube/songs/Soldier.mp3)  
