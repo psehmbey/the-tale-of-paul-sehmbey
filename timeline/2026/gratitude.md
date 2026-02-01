@@ -41,7 +41,7 @@ Will Arnett,
 Aaron Paul,
 Vin Diesel,
 Tom Cruise (The Last Samurai, etc.),
-"Teddy" Roosevelt,
+Theodore "Teddy" Roosevelt,
 "FDR",
 Kathleen Kennedy,
 James Earle Jones,
@@ -94,7 +94,7 @@ Walt Disney,
 
 ## Ottawa, Ontario, Canada
 
-Jolly family
+Simran, Amrita, Jyoti and G. Jolly,
 
 ### Roland Mitchener (sp) — Jr. Kindergarden — 4 ans
 Ian,
@@ -162,7 +162,6 @@ Amit,
 Navya,
 Brian (6th grade),
 Shreya (here or SHS?),
-Bruno (MHYSL),
 Chloe,
 Tara Rodriguez,
 Tanya Singh,
@@ -219,9 +218,11 @@ Rachel B.,
 Timothy Quach,
 Kassandra Wong,
 Ganesh,
-Gabe (MHYSL),
 Abilesh,
-Andreas Mimberg (MHYSL),
+Gabe (MHYSL),
+Siri (MHYSL),
+Josh (MHYSL),
+Sumner (MHYSL),
 
 ### Challenger
 Mr. Hamilton,
@@ -244,6 +245,8 @@ Davanshi,
 Mimi,
 
 ### Chaboya Middle School
+British Soccer Camp (girls team and coaches),
+(Soccer Camp) (Upstate NY, Allendale?),
 Mr. Mitchell,
 Ms. Lawler,
 Mr. Atkins,
@@ -278,6 +281,9 @@ Sid. Pradeep,
 Tristan,
 Neeraj Baid,
 Sukhreet,
+Bruno (MHYSL),
+Andreas Mimberg (MHYSL),
+Scott (Jay MHYSL),
 
 ### [Evergreen Valley High School](https://evergreenvalleyhigh.esuhsd.org/home)
 Ms. Rubio,
@@ -481,8 +487,8 @@ Ambar Pharmacy,
 Amato Pharmacy,
 Vapiano's,
 Michelle Freedland,
-Brendan Marry,
-Jahayra Munoz,
+Brendan T. Marry,
+Jahayra Muñoz,
 Fidelity,
 Paul (Yale),
 Dr. Dan Suter,
@@ -508,6 +514,7 @@ Rebecca Siracusa,
 James (GOTO: Morgan Library),
 Hannah? (Z's roommate from Texas),
 (deep-throat),
+Dr. P.O.,
 
 ### NYU
 ![Thank you, NYU.](../../media/youtube/shorts/who-do-you-say-that-i-am.mp4)
@@ -576,6 +583,7 @@ Phillip Frankel,
 Kevin Maldonado,
 Yvonne Bowman,
 Nakamatsu,
+Aidan & (girlfriend) (IF2),
 
 #### Summer Undergraduate Research Program (S.U.R.P.)
 Sophia Allen & M.G.,
@@ -622,6 +630,7 @@ Tran,
 
 [White Rose Syndicate](https://swtorfancommunity.com/guilds/blacklight-sk-and-black-rose-syndicate-star-forge),  
 Alethia Preston,  
+(Uber driver OMW back from seeing BMH) (San Diego, CA),  
 
 ### Hewlett Packard Enterprise | HPE
 Timothy Brophy,  
@@ -760,10 +769,14 @@ Nikki,
 
 ### Little Italy, The Bronx, New York, USA
 Beyonce Knowles (or look-alike in my neighborhood),
+DMX,
 Rene Porter,
-Mr. Beci x2,
+Ejell Beci,
+Sokol Beci,
 Vinny "V.I.",
-(neighbors on Beaumont, Cambrelang, Belmont, etc.),
+Austin & (his mom),
+(neighbors on Beaumont, Cambrelang, Belmont, Hughes, Arthur, Hoffman, Lorillard, Creston, Grand, Davidson, Jerome, etc. Avenues from 183rd to 198th St.),
+(guy on Arthur who called me "Superman" and reminded me to follow up on credit card offers),
 
 ---
 
