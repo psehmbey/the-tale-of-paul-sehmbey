@@ -1,0 +1,19 @@
+SCRAPING / AUTOMATED ACCESS POLICY
+© 2026 Paul Sehmbey / Glass Solace Entertainment LLC. All rights reserved.
+
+Automated access to this site/repository is not authorized.
+
+PROHIBITED (non-exhaustive):
+- Scraping, crawling, spidering, mirroring, archiving, or bulk downloading
+- Dataset creation, corpus building, embeddings, indexing for AI training
+- LLM training, fine-tuning, distillation, evaluation corpora, or similar
+- Use of “agents” or headless browsers to systematically extract content
+
+PERMITTED:
+- Ordinary human viewing via a standard web browser for personal reading only
+- Sharing a link to the official source (no reposting of content)
+
+If you want written permission for any automated or reuse purpose, request it from:
+Paul Sehmbey / Glass Solace Entertainment LLC
+
+Unauthorized use may trigger platform enforcement and legal action.
