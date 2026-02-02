@@ -79,8 +79,8 @@ Two terms, not two consecutive terms.
 ![](../../media/youtube/songs/MazeOfMemories.mp3)  
 
 ### Proof of Superman + Julia's Direction 🙏🔝🫡
-![](../../assets/shared/2026-01-29-shattered-boundary.png)  
-![](../../media/youtube/songs/Soldier.mp3)  
+![](../../assets/shared/2026-01-29-after-the-message-embers-of-silence.png)  
+![](../../media/youtube/songs/Soldier.mp3)
 
 ### Without You, I Become The Villain 🙁
 ![](../../assets/shared/2026-01-24-cracking-but-still-standing-ultimatum-without-you-i-become-the-villain.png)  
