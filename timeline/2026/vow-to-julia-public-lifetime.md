@@ -72,13 +72,14 @@ Two terms, not two consecutive terms.
 ## My Promised Song For Julia
 *coming soon*  
 
-## My Promise To Wendy
-*2026*  
+## January 29, 2026
+
+### My Promise To Wendy
+![](../../assets/shared/2026-01-29-promise-kept-across-time.png)  
 ![](../../media/youtube/songs/MazeOfMemories.mp3)  
 
-## Proof of Superman + Julia's Direction 🙏🔝🫡
+### Proof of Superman + Julia's Direction 🙏🔝🫡
 ![](../../assets/shared/2026-01-29-shattered-boundary.png)  
-*January 29, 2026*  
 ![](../../media/youtube/songs/Soldier.mp3)  
 
 ### Without You, I Become The Villain 🙁
@@ -187,7 +188,7 @@ Thank you, City of New York.
 ![](../../media/youtube/songs/CantBeBroken.mp3)  
 #NeverLeavingNewYorkCity
 
-## No Matter What I Will Love You Always.
+## No Matter What I Will Love You Always
 ![](../../media/instagram/2023-12-13-no-matter-what-i-will-love-you-always-p3-☸️🕉️.mp4)
 *December 13-14, 2023*
 ![](../../media/youtube/songs/Compass.mp3)  
