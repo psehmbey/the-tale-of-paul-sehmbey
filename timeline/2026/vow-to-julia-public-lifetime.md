@@ -69,6 +69,9 @@ In a professional setting, surrounded by women colleagues and mentors, I made a 
 ![](../../media/youtube/songs/Uprising.mp3)  
 Two terms, not two consecutive terms.
 
+## My Promised Song For Julia
+*coming soon*  
+
 ## My Promise To Wendy
 *2026*  
 ![](../../media/youtube/songs/MazeOfMemories.mp3)  

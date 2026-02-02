@@ -42,7 +42,9 @@ Will Arnett,
 Aaron Paul,
 Vin Diesel,
 Tom Cruise (The Last Samurai, etc.),
-Theodore "Teddy" Roosevelt,
+Barak "Barry" H. Obama,
+Donald J. Trump (though we gotta talk soon),
+Theodore "Teddy" Roosevelt (mostly),
 "FDR",
 Kathleen Kennedy,
 James Earle Jones,
@@ -654,10 +656,10 @@ Alethia Preston,
 
 ### Hewlett Packard Enterprise | HPE
 Timothy Brophy,  
-Kristian Delay,  
+Kristian Delay 🤘,  
 Peter Flower ☮️,  
 Kit Peery,  
-William,  
+William 🫡,  
 John Sellin,  
 Dan,  
 (TMES-Rianna look-alike Lyft driver),
@@ -712,6 +714,7 @@ Johnny,
 Calvin,
 "Black",
 E.,
+(chill construction site manager),
 
 ### 5113 2nd Ave.
 (torta truck),
@@ -776,15 +779,16 @@ Tony/Flaco,
 Anthony (bug-out who attacked Goon for no reason),
 N.H. (violent, attacked Goon for no reason),
 A.M.,
+(Mexican homie appearing ~my age who was there initially before moving up in the world),
 
 ### 194
 Sammy's,
+Airegin Smith & Co.,
 Norman W. Smith,
 Mo/Moe (Fordham/Grand Concourse),
 D. & Jay,
 Supreme Shine,
 Tank,
-Airegin Smith & Co.,
 Nikki,
 
 ### Little Italy, The Bronx, New York, USA
@@ -797,6 +801,7 @@ Vinny "V.I.",
 Austin & (his mom),
 (neighbors on Beaumont, Cambrelang, Belmont, Hughes, Arthur, Hoffman, Lorillard, Creston, Grand, Davidson, Jerome, etc. Avenues from 183rd to 198th St.),
 (guy on Arthur who called me "Superman" and reminded me to follow up on credit card offers),
+Alex? (Sandwich Master),
 
 ---
 
