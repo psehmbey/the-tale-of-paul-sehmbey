@@ -84,7 +84,6 @@ Two terms, not two consecutive terms.
 
 ### Without You, I Become The Villain 🙁
 ![](../../assets/shared/2026-01-24-cracking-but-still-standing-ultimatum-without-you-i-become-the-villain.png)  
-![](../../media/youtube/LexLuthorSmallvilleTributeHowVillainsAreMadeMV.mp4)  
 ![](../../media/youtube/songs/Symphony.mp3)  
 
 ## Sage Mastery / Things Left Unsaid
@@ -336,8 +335,9 @@ No revisionism: This was society's operational failure. If this has not made eno
 ![](../../media/youtube/songs/DriveMySoul.mp3)  
 
 ## The Chosen One: Behold the Power of God.
-![](../../media/instagram/1994-0x-xx-behold-the-power-of-God-✡️✝️☪️.mp4)  
+![](../../assets/portraits/the-chosen-one-sovereign-awakening.png)  
 *March 18, 1994*  
+![](../../media/instagram/1994-0x-xx-behold-the-power-of-God-✡️✝️☪️.mp4)  
 
 ## [Grandfather](https://dhanjal.com) was right - I knew it!
 ![](../../assets/yyyy-mm-dd-you-lit-the-forge-i-carry-the-fire-paul-sehmbey.png)  
