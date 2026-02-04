@@ -1,4 +1,4 @@
-![](../../media/instagram/2001-06-dd-a-bridger-of-worlds-🌉✨🌍-thank-you-mrs-campbell.mp4)
+![](../../media/2001-06-dd-a-bridger-of-worlds-🌉✨🌍-thank-you-mrs-campbell.mp4)
 
 # Gratitude / “Kill List”
 
@@ -560,7 +560,7 @@ Khalil (Ottawa, via Evan/Amy),
 Dhruv (Queens, NY, via Kevin Maldonado),
 
 ### NYU
-![Thank you, NYU.](../../media/youtube/shorts/who-do-you-say-that-i-am.mp4)
+![Thank you, NYU.](../../media/shorts/who-do-you-say-that-i-am.mp4)
 Wendy Suzuki,
 Julia Basso,
 Juliette Basso/English,
@@ -841,4 +841,4 @@ Alex? (Sandwich Master),
 ---
 
 # Epilogue
-![](../../media/youtube/shorts/wish-id-thought-of-that.mp4)
+![](../../media/shorts/wish-id-thought-of-that.mp4)  
