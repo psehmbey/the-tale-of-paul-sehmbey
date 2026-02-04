@@ -186,7 +186,7 @@ Thank you, City of New York.
 *February 09, 2025*
 
 ## A Promise: Return to NYC
-![](../../media/2024-01-20-happy-to-be-here.mp4)
+![](../../assets/portraits/the-promised-return-new-york-city.png)  
 *January 20, 2024*  
 ![](../../media/songs/CantBeBroken.mp3)  
 #NeverLeavingNewYorkCity
