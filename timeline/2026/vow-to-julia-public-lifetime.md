@@ -64,6 +64,7 @@ In a professional setting, surrounded by women colleagues and mentors, I made a 
 ![](../../media/last-will-and-testament.mp4)
 
 ## My Empire of Earth
+*TBD*
 
 ## Paul-itics
 ![](../../media/2028-mm-dd-paul-itics.mp4)
@@ -171,7 +172,7 @@ even the coldest parts of me remembered home.
 ![](../../media/songs/Prequel.mp3)  
 
 ## The Prince of New York City 💍
-![](../../media/2025-04-11-the-prince-of-new-york-city-💍.mp4)
+![](../../assets/portraits/the-prince-of-new-york-city-v1.png)  
 *April 11, 2025*  
 ![](../../media/songs/Royalty.mp3)  
 Thank you, City of New York.
@@ -338,6 +339,9 @@ No revisionism: This was society's operational failure. If this has not made eno
 ![](../../assets/shared/2016-twin-flame-origin-childhood-connection.png)  
 *1999-2001-2003*  
 ![](../../media/songs/DriveMySoul.mp3)  
+
+## 🦇
+![](../../assets/portraits/where-destiny-began-the-batman-book.png)  
 
 ## The Chosen One: Behold the Power of God.
 ![](../../assets/portraits/the-chosen-one-sovereign-awakening.png)  
