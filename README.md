@@ -5,8 +5,6 @@
 A **[Love Story](timeline/2026/vow-to-julia-public-lifetime.md)**.
 ![](../../media/songs/PocketfulofSunshine.mp3)  
 
-Additional Topics/Themes: fearlessness, feminism, God, healing, insight, joy, Julia, Kurama, life, loss, memory, peace, persistence, philosophy, power, respect, responsibility, sacrifice, science, self-actualization, sight, spirituality, technology, transcendence, trust, vision, will
-
 Note: By "Hokage," I mean "King of the Pirates," and by "King of the Pirates," I mean POTUS.
 
 ---
