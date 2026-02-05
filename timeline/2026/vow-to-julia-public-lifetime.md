@@ -310,7 +310,7 @@ Still holding my finger, she then touched the point of her ring finger to mine�
 Julia called me a "tech genius," prior to which [I didn't believe I was](#reality-altering-love).  
 
 ## A Test: Impressing Victoria (and vice-versa)
-![](../../media/2016-03-dd-thank-you-victoria-✝️🇮🇹.mp4)
+![](../../assets/portraits/2016-impressing-victoria.png)  
 *2016*  
 Hit 'er with that #ShadowCloneJutsu 😉
 
