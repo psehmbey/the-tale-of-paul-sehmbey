@@ -201,16 +201,17 @@ Thank you, Jeremiah Slaughter.
 
 ## Physically Assaulted: No More 🏀
 *October 3, 2024*  
+![](../../media/songs/CantBeBroken.mp3)  
 Another love lost.
 
 ## Sexually Assaulted / Encountering An Active Sexual Predator: A.M.
 *July 2024 — Day One at 5113 2nd Avenue in Brooklyn.*  
+![](../../media/songs/CantBeBroken.mp3)  
 Was this all part of the plan, New York?
 
 ## A Promise: Return to NYC
 ![](../../assets/portraits/the-promised-return-new-york-city.png)  
 *January 20, 2024*  
-![](../../media/songs/CantBeBroken.mp3)  
 #NeverLeavingNewYorkCity
 
 ## No Matter What I Will Love You Always
@@ -356,11 +357,11 @@ No revisionism: This was society's operational failure. If this has not made eno
 ## Genius Strategist: Checkmate Before The War
 ![](../../assets/portraits/the-young-strategist-art-of-war.png)  
 **  
-#BobbyFischer
+#BobbyFischer #SunTzu
 
 ## The Child of Prophecy / The Boy Who Called The Fire
 ![](../../assets/portraits/the-boy-who-called-the-fire.png)  
-*2001 onward, if not since [birth](#the-chosen-one-behold-the-power-of-god).*  
+*2001 onward, if not since [birth](#the-chosen-one-behold-the-power-of-god). Kurama summoned more literally ~2008.*  
 ![](../../media/songs/GOHARD.mp3)  
 #LegendaryWorkEthic #SpecialGradeSorcerer
 
