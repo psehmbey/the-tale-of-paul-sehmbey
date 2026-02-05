@@ -336,7 +336,7 @@ Warmly,
 Paul Sehmbey  
 
 ## Enter: Wendy Suzuki
-![](../../assets/portraits/)  
+![](../../assets/portraits/2016-03-dd-suzuki-sensei.png)  
 *March 2016*  
 Thank you, Wendy. 🙏🧠✨
 
@@ -359,20 +359,21 @@ No revisionism: This was society's operational failure. If this has not made eno
 ![](../../assets/portraits/the-boy-who-called-the-fire.png)  
 *2001 onward, if not since [birth](#the-chosen-one-behold-the-power-of-god).*  
 ![](../../media/songs/GOHARD.mp3)  
+#LegendaryWorkEthic
 
 ## ❤️‍🔥 Twin Flames ❤️‍🔥
 ![](../../assets/shared/2016-twin-flame-origin-childhood-connection.png)  
 *1999-2001-2003*  
 ![](../../media/songs/DriveMySoul.mp3)  
 
-## 🦇
+## The Boy Who Would Be 🦇
 ![](../../assets/portraits/where-destiny-began-the-batman-book.png)  
-**
+**  
+#LegendaryWorkEthic
 
 ## The Chosen One: Behold the Power of God.
 ![](../../assets/portraits/the-chosen-one-sovereign-awakening.png)  
 *March 18, 1994*  
-![](../../media/1994-0x-xx-behold-the-power-of-God-✡️✝️☪️.mp4)  
 
 ## [Grandfather](https://dhanjal.com) was right - I knew it!
 ![](../../assets/yyyy-mm-dd-you-lit-the-forge-i-carry-the-fire-paul-sehmbey.png)  
@@ -383,5 +384,5 @@ No revisionism: This was society's operational failure. If this has not made eno
 
 # I’d like to thank the Academy.
 
-**[Gratitude](./gratitude.md)**  
+[Gratitude](./gratitude.md)  
 ![](../../media/soundbytes/FuturamaSantaClaus.mp3)  
