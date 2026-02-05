@@ -19,6 +19,7 @@ Mohinder Sehmbey, Dadi,
 Socrates,
 Mark Hammil,
 Robert De Niro (for Stardust, etc.),
+Val Kilmer (for The Prince of Egypt, etc.),
 Harriet Tubman,
 Tech N9ne,
 Krizz Kaliko,
@@ -312,8 +313,10 @@ Justin "Justy" (MHYSL),
 Ashley (bro),
 Sergio Garcia (MHYSL — for his passion and for observing/commenting that one of my superpowers is juking everyone out in slow motion),
 Harrison Park,
+Rahul (MHYSL),
 x Valasquez,
 x Alvarez,
+x Ramos,
 
 ### [Evergreen Valley High School](https://evergreenvalleyhigh.esuhsd.org/home)
 Ms. Rubio,
@@ -342,6 +345,7 @@ Peter Leung,
 Phill (guitar),
 Atamjit,
 Corinne (French),
+Salvador,
 
 ## Saratoga, California, USA
 
@@ -474,6 +478,8 @@ Corinne Z.,
 Cody Cai,
 Nick Turpin,
 Nick D. & Eric,
+Spencer Goldman,
+Spencer,
 
 ## Boston, Massachusetts, USA
 
