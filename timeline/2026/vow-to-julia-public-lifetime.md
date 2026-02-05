@@ -62,25 +62,25 @@ In a professional setting, surrounded by women colleagues and mentors, I made a 
 
 ## Last Will and Testament
 ![](../../media/last-will-and-testament.mp4)  
-*Insert full name meaning here.*  
+*Full Name Meaning: The Immortal Defender*  
 
 ## My Empire of Earth
 *TBA*
 
 ## Paul-itics
 ![](../../media/2028-mm-dd-paul-itics.mp4)
-*2028*  
+*2028? 🤷*  
 ![](../../media/songs/Uprising.mp3)  
 Two terms, not two consecutive terms.
 
 ## My Promised Song For Julia
-*coming soon*  
+*Coming Soon.*  
 
 ## January 29, 2026
 
 ### My Promise To Wendy
 ![](../../assets/shared/2026-01-29-promise-kept-across-time.png)  
-*Coming Soon: Formal Research Proposal*  
+*Formal Research Proposal Coming Soon*  
 ![](../../media/songs/MazeOfMemories.mp3)  
 Dear Wendy,
 
@@ -194,6 +194,7 @@ Thank you, City of New York.
 ![](../../media/2025-04-11-gratitude-🙏.mp4)
 *April 11, 2025*  
 ![](../../media/songs/NoRival.mp3)  
+🖕
 
 ## For Future Generations ✊ Reawakening The Protector 🛡️
 *February 09, 2025*  
@@ -206,7 +207,7 @@ Another love lost.
 #LongJohnSilver #PirateKing
 
 ## Sexually Assaulted / Encountering An Active Sexual Predator: A.M.
-*July 2024 — Day One at 5113 2nd Avenue in Brooklyn.*  
+*July 2024 — Day Damn One at 5113 2nd Avenue in Brooklyn.*  
 ![](../../media/songs/CantBeBroken.mp3)  
 Word, was this all part of your plan, New York?
 
@@ -215,21 +216,17 @@ Word, was this all part of your plan, New York?
 *January 20, 2024*  
 #NeverLeavingNewYorkCity
 
-## No Matter What I Will Love You Always
-![](../../media/2023-12-13-no-matter-what-i-will-love-you-always-p3-☸️🕉️.mp4)
-*December 13-14, 2023*
-![](../../media/songs/Compass.mp3)  
-
 ## Julia's Final/Provoked Rejection - My Responsibility: Eliminate the Uchiha. ❤️‍🔥😈🙏
 ![Kurama fully in control as Paul stands engulfed in fire while Julia walks away, marking the final rejection](../../assets/shared/2023-10-17-kurama-dominion-final-rejection.png)
-*October 17, 2023*  
+*October 17, 2023 — Final Rejection. December 13-14, 2023 — Eliminate the Uchiha.*  
 ![](../../media/songs/Faceless.mp3)  
+![](../../media/songs/Compass.mp3)  
 Still not him.  
 #DarthJesus #PaulpatinePlagueis
 
 ## Good Advice: Trust Love
 ![](../../assets/portraits/kundalini-kendall.jpg)  
-*June 2023*  
+*June 2023 — Quantum Leap: Session One. mm 2023 — Quantum Leap: Session Two.*  
 ![](../../media/songs/OneandOnly.mp3)  
 Thank you, Kendall. 🦋
 
