@@ -102,7 +102,7 @@ Thank you for the steadiness and integrity you’ve always modeled.
 Warmly,  
 Paul Sehmbey
 
-### Proof of Superman + (Julia's Direction 🙏🔝🫡 | Only A Dream)  
+### Proof of Superman + (Julia's Direction 🙏🔝🫡 | Only A Dream)
 ![](../../assets/shared/2026-01-29-after-the-message-embers-of-silence.png)  
 ![](../../media/songs/Infinity.mp3)  
 
