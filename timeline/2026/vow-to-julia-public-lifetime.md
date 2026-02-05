@@ -1,6 +1,6 @@
 ![Paul Sehmbey & Julia Canick — Union of Flame and Solace](../../assets/shared/2026-01-17-paul-sehmbey-julia-canick-union-of-flame-and-solace-ringed.png)
 
-# Vow
+# Vow to Julia E. Canick
 
 *January 17, 2026 - 6:40 PM EST*
 
