@@ -156,15 +156,10 @@ For now, this note arrives as a small light from someone who once cared for you 
 With sincere appreciation,  
 Paul Sehmbey
 
-## Reality-Altering Love
-![](../../media/2025-10-27-reality-altering-love.mp4)
-*October 27, 2025*  
-![](../../media/songs/InMyDreams.mp3)  
-Thank you, Julia.
-
-## Reciprocal Promises: 🪄❤️‍🩹
+## Reciprocal Promises: Reality-Altering Love 🪄❤️‍🩹
 ![](../../assets/shared/2025-10-27-heart-restored-by-julia-from-afar.png)
 *October 27, 2025*  
+![](../../media/songs/InMyDreams.mp3)  
 ![](../../media/songs/Halo.mp3)  
 It was always in the small moments—
 fingers meeting over a keyboard,
@@ -315,7 +310,7 @@ Still holding my finger, she then touched the point of her ring finger to mine�
 
 (Julia was on my right. My left ring finger. I had already taken the flash drive or something, turned and was pulling my hand away when Julia held onto my finger).  
 
-Julia called me a "tech genius," prior to which [I didn't believe I was](#reality-altering-love).  
+Julia called me a "tech genius," prior to which [I didn't believe I was](#).  
 
 ## A Test: Impressing Victoria (and vice-versa)
 ![](../../assets/portraits/2016-impressing-victoria.png)  
