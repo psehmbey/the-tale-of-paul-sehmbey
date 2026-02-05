@@ -310,7 +310,7 @@ Still holding my finger, she then touched the point of her ring finger to mineâ€
 
 (Julia was on my right. My left ring finger. I had already taken the flash drive or something, turned and was pulling my hand away when Julia held onto my finger).  
 
-Julia called me a "tech genius," prior to which [I didn't believe I was](#).  
+Julia called me a "tech genius," prior to which [I didn't believe I was](#reciprocal-promises-reality-altering-love-%EF%B8%8F%E2%80%8D).  
 
 ## A Test: Impressing Victoria (and vice-versa)
 ![](../../assets/portraits/2016-impressing-victoria.png)  
