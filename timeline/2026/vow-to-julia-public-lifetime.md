@@ -336,7 +336,7 @@ Warmly,
 Paul Sehmbey  
 
 ## Enter: Wendy Suzuki
-![](../../assets/portraits/2016-03-dd-suzuki-sensei.png)  
+![](../../assets/shared/2016-03-dd-suzuki-sensei.png)  
 *March 2016*  
 Thank you, Wendy. 🙏🧠✨
 
