@@ -61,10 +61,11 @@ In a professional setting, surrounded by women colleagues and mentors, I made a 
 # Our Story
 
 ## Last Will and Testament
-![](../../media/last-will-and-testament.mp4)
+![](../../media/last-will-and-testament.mp4)  
+**  
 
 ## My Empire of Earth
-*TBD*
+*TBA*
 
 ## Paul-itics
 ![](../../media/2028-mm-dd-paul-itics.mp4)
@@ -79,7 +80,24 @@ Two terms, not two consecutive terms.
 
 ### My Promise To Wendy
 ![](../../assets/shared/2026-01-29-promise-kept-across-time.png)  
+*Coming Soon: Formal Research Proposal*  
 ![](../../media/songs/MazeOfMemories.mp3)  
+Dear Wendy,
+
+I hope you’ve been well.
+
+I’m reaching out because I’m trying to understand something that has stayed with me for many years, and I respect your clarity and judgment. Around 2016, I formed a deep personal meaning around a connection in my life that intertwined with my work, my growth, and my sense of purpose. For a long time, I believed I was building toward something real and mutual.
+
+Recently, I received a firm request for no further contact, which prompted me to step back and reflect. I’m now questioning whether I misread the situation — whether what I experienced as shared intention was, in reality, something I carried much further on my own.
+
+I’m not asking you to assess anyone else’s motives or intervene in any way. I’m trying to understand my own meaning-making: how intelligent, well-intentioned people can construct coherence around a relationship, and how to integrate its collapse without losing trust in themselves.
+
+If you’re willing to offer any perspective — personal, professional, or general — I would be very grateful. If this isn’t something you’re comfortable weighing in on, I completely understand.
+
+Thank you for the steadiness and integrity you’ve always modeled.
+
+Warmly,
+Paul Sehmbey
 
 ### Proof of Superman + Julia's Direction 🙏🔝🫡
 ![](../../assets/shared/2026-01-29-after-the-message-embers-of-silence.png)  
@@ -110,7 +128,7 @@ I’m not writing to force a decision or to corner you into a response. I simply
 
 And if you feel drawn to talk — now or later — I’m here, open and grounded, and I’d genuinely enjoy hearing from you.
 
-With affection,
+With affection,  
 Paul
 
 ## Sage Reawakening / A small Hanukkah light
@@ -136,7 +154,7 @@ If, at any point, you ever feel a gentle curiosity about reconnecting—even bri
 
 For now, this note arrives as a small light from someone who once cared for you up close and still holds you in grateful regard from afar. May this Hanukkah bring you more peace than noise, and more true warmth than you have to explain.
 
-With sincere appreciation,
+With sincere appreciation,  
 Paul Sehmbey
 
 ## Reality-Altering Love
@@ -170,6 +188,7 @@ even the coldest parts of me remembered home.
 ![](../2025/2025-09-12-identity-reveal.png)  
 *September 12, 2025*  
 ![](../../media/songs/Prequel.mp3)  
+Way to pick up the story, Hasan Minhaj. 👍
 
 ## The Prince of New York City 💍
 ![](../../assets/portraits/the-prince-of-new-york-city-v1.png)  
@@ -247,7 +266,7 @@ Julia is portrayed here looking away from me then into the eyes of the man she k
 *2016*  
 After Julia’s second apartment party, as I finished putting on my shoes, I looked up to find she had stepped away from a serious conversation I hadn’t wanted to interrupt. I never felt the distance between us close. One moment she was across the room, and the next she was in my arms. I held her tightly, and in that instant I felt a quiet spark of light rise in my chest—warm, steady, unmistakable. It was a simple goodbye, unannounced and unguarded, and it became the best hug I have ever received.
 
-## Not-So-Silent Saviour — WashSquaPa
+## Not-So-[Silent Saviour](../../media/) — WashSquaPa
 ![Recruiting for the Suzuki Lab in Washington Square Park — when someone showed interest in Julia and I stepped in, fast-talking not out of competition, but love.](../../assets/shared/2016-washington-square-park-suzuki-lab-recruiting-quiet-jealousy.png)  
 *2016*  
 Recruiting for the Suzuki Lab in Washington Square Park — when someone showed interest in Julia and I stepped in, fast-talking not out of competition, but love. (IRL, dude was friendly, older, taller and more built, not some younger student). I remained acutely aware that Julia could have torpedoed me anytime she wished the entire time I was running my mouth, but she never did.  
@@ -293,7 +312,7 @@ Julia called me a "tech genius," prior to which [I didn't believe I was](#realit
 ## A Test: Impressing Victoria (and vice-versa)
 ![](../../media/2016-03-dd-thank-you-victoria-✝️🇮🇹.mp4)
 *2016*  
-#ShadowCloneJutsu
+Hit 'er with that #ShadowCloneJutsu 😉
 
 Excerpt from a private letter written on January 3, 2026, shared here as part of a personal archive acknowledging influences that helped refine how I listen, grow, and show up with intention:
 
@@ -332,7 +351,8 @@ No revisionism: This was society's operational failure. If this has not made eno
 
 ## Checkmate Before The War
 ![](../../assets/portraits/the-young-strategist-art-of-war.png)  
-**
+**  
+#BobbyFischer
 
 ## The Child of Prophecy / The Boy Who Called The Fire
 ![](../../assets/portraits/the-boy-who-called-the-fire.png)  
