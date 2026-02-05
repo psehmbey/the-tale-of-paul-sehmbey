@@ -341,8 +341,9 @@ Paul Sehmbey
 Thank you, Wendy. 🙏🧠✨
 
 ## A Demonstration: 💑 - Let the Music Play
-![](../../media/songs/LettheMusicPlay.mp3)  
+![](../../assets/shared/2013-2015-a-demonstration-let-the-music-play.png)  
 *2013-2015*  
+![](../../media/songs/LettheMusicPlay.mp3)  
 I never left you, Julia, I just hadn't met you in this lifetime yet, but that's no excuse and partially explains my symptoms at the time.  
 
 No revisionism: This was society's operational failure. If this has not made enough of a lasting impression, I am happy to narrow down my accusation to include the names of specific individuals and organizations.  
