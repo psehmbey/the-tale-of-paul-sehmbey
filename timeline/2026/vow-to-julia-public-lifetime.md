@@ -270,7 +270,7 @@ Julia is portrayed here looking away from me then into the eyes of the man she k
 *2016*  
 After Julia’s second apartment party, as I finished putting on my shoes, I looked up to find she had stepped away from a serious conversation I hadn’t wanted to interrupt. I never felt the distance between us close. One moment she was across the room, and the next she was in my arms. I held her tightly, and in that instant I felt a quiet spark of light rise in my chest—warm, steady, unmistakable. It was a simple goodbye, unannounced and unguarded, and it became the best hug I have ever received.
 
-## Not-So-[Silent Saviour]([https://github.com/psehmbey/the-tale-of-paul-sehmbey/blob/main/media/unreferenced/%F0%9F%8E%93/2008-06-dd-the-silent-saviour-%E2%9C%9D%EF%B8%8F.mp4](https://github.com/psehmbey/the-tale-of-paul-a-sehmbey/blob/main/media/2008-06-dd-the-silent-saviour-%E2%9C%9D%EF%B8%8F.mp4)) — WashSquaPa
+## Not-So-[Silent Saviour](https://github.com/psehmbey/the-tale-of-paul-a-sehmbey/blob/main/media/2008-06-dd-the-silent-saviour-%E2%9C%9D%EF%B8%8F.mp4) — WashSquaPa
 ![Recruiting for the Suzuki Lab in Washington Square Park — when someone showed interest in Julia and I stepped in, fast-talking not out of competition, but love.](../../assets/shared/2016-washington-square-park-suzuki-lab-recruiting-quiet-jealousy.png)  
 *2016*  
 ![](../../media/songs/Falling.mp3)  
