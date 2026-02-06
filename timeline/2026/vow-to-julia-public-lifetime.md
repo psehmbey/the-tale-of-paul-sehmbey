@@ -234,14 +234,11 @@ Still not him.
 ![](../../media/songs/OneandOnly.mp3)  
 Thank you, Kendall. 🦋
 
-## A Demonstration: Relentless Resilience
-![](../../media/2023-04-30-relentless-resilience-✝️🦇.mp4)
-*April 30, 2023*
-![](../../media/songs/Untouchable.mp3)  
-
 ## A Promise: Surrender to Humankind
 ![](../../assets/shared/2023-04-18-surrender-to-mankind-✝️.png)  
-*April 18, 2023*  
+*April 18, 2023  
+April 30, 2023 — A Demonstration: Relentless Resilience*  
+![](../../media/songs/Untouchable.mp3)  
 Thank you, Chelsea and family of Jehovah's Witnesses.
 
 ## A Plan: Hulkbuster
