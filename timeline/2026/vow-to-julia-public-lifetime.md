@@ -78,8 +78,8 @@ See date for the meaning of my full name given to me by my mother.
 ![](../../media/songs/Renegades.mp3)  
 Two terms, not two consecutive terms.
 
-## My Promised Song For Julia
-*Coming Soon*  
+## Julie-oolie-ulia
+*Promised Song Coming Soon*  
 
 ## January 29, 2026
 
