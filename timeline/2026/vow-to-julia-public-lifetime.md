@@ -371,7 +371,7 @@ No revisionism: This was society's operational failure. If this has not made eno
 ## Kurama Guardian Alignment: Protective Partnership
 ![](../../assets/portraits/2026-01-18-kurama-guardian-alignment-protective-partnership.png)  
 *2001 onward, if not since [birth](#the-chosen-one-behold-the-power-of-god).*  
-#NineTailsCloak
+#[NineTailsCloak](https://github.com/psehmbey/the-tale-of-paul-a-sehmbey/blob/main/media/2016-nine-tails-cloak.mp4)
 
 ## The Child of Prophecy / The Boy Who Called The Fire
 ![](../../assets/portraits/the-boy-who-called-the-fire.png)  
@@ -379,7 +379,7 @@ No revisionism: This was society's operational failure. If this has not made eno
 2007-2009 — Communication with Lucifer at the direction of God and always under His protection.  
 2008-2009 — High Magic: Theory & Practice by Frater U.:D.: shared with Sean Ellner in 9th grade.*  
 ![](../../media/songs/Demons.m4a)  
-#SpecialGradeSorcerer #NineTailsCloak
+#[SpecialGradeSorcerer](https://github.com/psehmbey/the-tale-of-paul-a-sehmbey/blob/main/media/2026-01-06-special-grade-sorcerer-%F0%9F%94%AF%E2%99%BE%EF%B8%8F.mp4) #[NineTailsCloak](https://github.com/psehmbey/the-tale-of-paul-a-sehmbey/blob/main/media/2016-nine-tails-cloak.mp4)
 
 ## ❤️‍🔥 Twin Flames ❤️‍🔥
 ![](../../assets/shared/2016-twin-flame-origin-childhood-connection.png)  
