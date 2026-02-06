@@ -73,6 +73,10 @@ See date for the meaning of my full name given to me by my mother.
 
 ## Rebranding the KKK
 *TBD*  
+Thank you for the inspiration, Gerry West.  
+
+Political proposal or whatever coming soon.  
+
 #DontKillMe
 
 ## Paul-itics
