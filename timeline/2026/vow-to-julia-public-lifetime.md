@@ -116,7 +116,7 @@ Paul Sehmbey
 ## Kurama Guardian Alignment: Protective Partnership
 ![](../../assets/portraits/2026-01-18-kurama-guardian-alignment-protective-partnership.png)  
 *2001 onward, if not since [birth](#the-chosen-one-behold-the-power-of-god).*  
-#[NineTailsCloak](https://github.com/psehmbey/the-tale-of-paul-a-sehmbey/blob/main/media/2016-nine-tails-cloak.mp4)
+#[NineTailsCloak](https://github.com/psehmbey/the-tale-of-paul-a-sehmbey/blob/main/media/2016-nine-tails-cloak.mp4) #TheImmortalDefender
 
 ## Sage Mastery / Things Left Unsaid
 ![](../../assets/portraits/2025-12-20-sage-mastery.png)
@@ -256,6 +256,7 @@ Thank you, Chelsea and family of Jehovah's Witnesses.
 ![](../../assets/shared/sovereign-exosuit-the-hulkbuster-plan.png)  
 *2022-2023 - Engineered in 2016 in sovereign collaboration with the Suzuki Lab at NYU.*   
 (IRL, not war machines, but neuroscience, psychology, and nobler applications of technology).  
+
 #Hulkbuster
 
 ## Meltdown 💔⏳🫠
