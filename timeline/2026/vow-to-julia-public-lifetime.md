@@ -250,7 +250,7 @@ Thank you, Chelsea and family of Jehovah's Witnesses.
 ## A Plan
 ![](../../assets/shared/sovereign-exosuit-the-hulkbuster-plan.png)  
 *2022-2023 - Engineered in 2016 in sovereign collaboration with the Suzuki Lab at NYU.*   
-(IRL, not war machines, but neuroscience, psychology, and nobler applications of technology).
+(IRL, not war machines, but neuroscience, psychology, and nobler applications of technology).  
 #Hulkbuster
 
 ## Meltdown 💔⏳🫠
