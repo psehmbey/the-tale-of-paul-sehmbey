@@ -362,12 +362,13 @@ No revisionism: This was society's operational failure. If this has not made eno
 #BobbyFischer #SunTzu
 
 ## Kurama Guardian Alignment: Protective Partnership
-*2001 onward, if not since [birth](#the-chosen-one-behold-the-power-of-god).*
 ![](../../assets/portraits/2026-01-18-kurama-guardian-alignment-protective-partnership.png)  
+*2001 onward, if not since [birth](#the-chosen-one-behold-the-power-of-god).*
 
 ## The Child of Prophecy / The Boy Who Called The Fire
 ![](../../assets/portraits/the-boy-who-called-the-fire.png)  
-*2001 onward, if not since [birth](#the-chosen-one-behold-the-power-of-god).  2007-2009 — Communication with Lucifer at God's direction.*  
+*2001 onward, if not since [birth](#the-chosen-one-behold-the-power-of-god).  
+2007-2009 — Communication with Lucifer at God's direction.*  
 ![](../../media/songs/GOHARD.mp3)  
 ![](../../media/songs/AmIAPsycho.m4a)  
 #SpecialGradeSorcerer
