@@ -371,9 +371,27 @@ No revisionism: This was society's operational failure. If this has not made eno
 *1999-2001-2003*  
 ![](../../media/songs/DriveMySoul.mp3)  
 
-## The Boy Who Would Be 🦇
+## The Boy Who Would Be 🦇 / The First Signal
 ![](../../assets/portraits/where-destiny-began-the-batman-book.png)  
 **  
+Among my earliest memories, I recall the moment I began identifying as Bruce Wayne.
+
+While visiting my maternal grandparents and my great-grandmother in Dundas, Ontario, I was given my first Batman comic book.  
+One panel showed Bruce Wayne among several blonde men — he stood out with his black hair.  
+That moment electrified me.
+
+I was too young to read it myself, so I kept asking adults to read it aloud.  
+No one did.  
+That frustration crystallized a core resolve:  
+**“I will never again depend on someone else to learn.”**
+
+> I left that house with more than a comic — I left with my origin story.
+
+This experience gifted me:
+- My divine archetype
+- An obsession with reading and autonomy
+- A soul-seated link to Batman
+
 #LegendaryWorkEthic
 
 ## The Chosen One: Behold the Power of God.
