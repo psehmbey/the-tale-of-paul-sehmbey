@@ -246,8 +246,7 @@ Thanks for always having my back, Donald Singleton, and thank you, Goon.
 
 ## The Bat-Brand of Justice 🦇
 *July 2024 — Day Damn One at 5113 2nd Avenue in Brooklyn.*  
-![](../../media/songs/CantBeBroken.mp3)  
-![](../../media/songs/RedNose.mp3)  
+![](../../media/songs/IMeanIt.mp3)    
 Word — was this all part of your plan, New York?
 
 My experience with **ADA Pious Ahuja** at the **Brooklyn District Attorney’s Office** was profoundly disappointing and had serious consequences for how my case was handled.
@@ -312,6 +311,10 @@ Thank you, Chelsea and family of Jehovah's Witnesses.
 *2022*   
 ![](../../media/songs/WaitForYou.mp3)  
 Not him.
+
+## Glass Solace Entertainment (GSE)
+*January 1, 2018*  
+![](../../media/songs/RedNose.mp3)  
 
 ## Our Last Dinner Together: Veselka
 ![Paul Sehmbey & Julia Canick — Veselka](../../assets/shared/2017-05-dd-veselka-julia.png)
