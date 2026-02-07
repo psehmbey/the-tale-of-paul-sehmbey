@@ -495,8 +495,15 @@ This experience gifted me:
 ## Brother / Acting Father
 *September 1996*  
 
-## Remarkable Intelligent Genius
+## I Am A Remarkable Intelligent Genius
 *1994*  
+From the earliest days of my life, my mother instilled in me an unshakable belief in my potential.  
+
+She used repetition to teach me to say, “I am a remarkable intelligent genius,” a phrase I never doubted.  
+
+At a hilariously young age, I would proudly announce this to other adults, leaving them either amused or awestruck by my confidence.  
+
+My mom’s intentional encouragement shaped not only my self-perception but also my ability to embrace challenges and pursue excellence without hesitation.
 
 ## The Chosen One: Behold the Power of God.
 ![](../../assets/portraits/the-chosen-one-sovereign-awakening.png)  
