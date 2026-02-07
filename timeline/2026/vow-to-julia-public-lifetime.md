@@ -215,7 +215,7 @@ even the coldest parts of me remembered home.
 ![](../../media/songs/Prequel.mp3)  
 Way to pick up the story, Hasan Minhaj. 👍
 
-## The Prince of New York City 💍
+## The Prince of New York City 💍 / [The Honoured One](https://github.com/psehmbey/the-tale-of-paul-a-sehmbey/blob/main/media/2025-04-11-the-honoured-one.mp4)
 ![](../../assets/portraits/the-prince-of-new-york-city-v1.png)  
 *April 11, 2025*  
 ![](../../media/songs/Royalty.mp3)  
@@ -244,6 +244,7 @@ Thanks for always having my back, Donald Singleton, and thank you, Goon.
 ## Sexually Assaulted By An Active Sexual Predator: Antonio Melendez
 *July 2024 — Day Damn One at 5113 2nd Avenue in Brooklyn.*  
 ![](../../media/songs/CantBeBroken.mp3)  
+![](../../media/songs/RedNose.mp3)  
 Word — was this all part of your plan, New York?
 
 My experience with **ADA Pious Ahuja** at the **Brooklyn District Attorney’s Office** was profoundly disappointing and had serious consequences for how my case was handled.
@@ -426,7 +427,6 @@ Thank you Derek Makeever and all my SHS MAP classmates and teachers.
 #TheGiver #ForbiddenPerspective
 
 ## The Mask of Sanity
-![](../../media/songs/RedNose.mp3)  
 *2010-2011*  
 
 ## Genius Strategist: Checkmate Before The War
