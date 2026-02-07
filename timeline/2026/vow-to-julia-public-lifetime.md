@@ -88,7 +88,8 @@ Two terms, not two consecutive terms.
 
 ## Julie-oolie-ulia
 *Promised Song Coming Soon*  
-They tried to silence me, so I sang louder (and danced on their corpses 🤷).
+They tried to silence me, so I sang louder (and danced on their corpses 🤷).  
+
 #MadisonSquareGarden
 
 ## January 29, 2026
