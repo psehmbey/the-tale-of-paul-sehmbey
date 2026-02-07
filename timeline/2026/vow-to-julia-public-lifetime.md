@@ -223,7 +223,8 @@ Thank you, City of New York.
 ![](../../media/2025-04-11-gratitude-🙏.mp4)
 *April 11, 2025*  
 ![](../../media/songs/NoRival.mp3)  
-🖕😂🖕
+🖕😂🖕  
+#FSociety
 
 ## For Future Generations ✊ Reawakening The Protector 🛡️
 *February 09, 2025*  
@@ -410,6 +411,10 @@ No revisionism: This was society's operational failure. If this has not made eno
 
 #IMustNotTellLies #LearnOrDie #JesusHatesYou
 
+## Promise to Antara, Kerry Mohnike & SHS MAP: Eliminate The Uchiha
+*2010-2011*  
+T.S. Elliot
+
 ## Mein Kampf
 *2010-2011*  
 TODO: Add anecdote of appreciation for SHS library.  
@@ -417,6 +422,9 @@ TODO: Add anecdote of appreciation for SHS library.
 Thank you Derek Makeever and all my SHS MAP classmates and teachers.  
 
 #TheGiver #ForbiddenPerspective
+
+## The Mask of Sanity
+*2010-2011*  
 
 ## Genius Strategist: Checkmate Before The War
 ![](../../assets/portraits/the-young-strategist-art-of-war.png)  
@@ -431,8 +439,15 @@ Thank you Derek Makeever and all my SHS MAP classmates and teachers.
 ![](../../media/songs/Demons.m4a)  
 #[SpecialGradeSorcerer](https://github.com/psehmbey/the-tale-of-paul-a-sehmbey/blob/main/media/2026-01-06-special-grade-sorcerer-%F0%9F%94%AF%E2%99%BE%EF%B8%8F.mp4) #[NineTailsCloak](https://github.com/psehmbey/the-tale-of-paul-a-sehmbey/blob/main/media/2016-nine-tails-cloak.mp4)
 
+## 666
+*June 6, 2006*  
+
 ## The Holocaust Museum — An Ally ✡️
 *June 2005 — Europe Trip*  
+
+## Promise To Sneha: I'll Always Be Around To Save The Day
+*2002-2003*  
+#TheBoyWhoLived
 
 ## ❤️‍🔥 Twin Flames ❤️‍🔥
 ![](../../assets/shared/2016-twin-flame-origin-childhood-connection.png)  
@@ -462,6 +477,12 @@ This experience gifted me:
 - A soul-seated link to Batman
 
 #LegendaryWorkEthic #IncorruptibleSoul
+
+## Brother / Acting Father
+*1996*  
+
+## Remarkable Intelligent Genius
+*March 1994 to September 1996*  
 
 ## The Chosen One: Behold the Power of God.
 ![](../../assets/portraits/the-chosen-one-sovereign-awakening.png)  
