@@ -79,6 +79,10 @@ Political proposal and/or stand up coming soon-ish.
 
 #DontKillMeOrGerry
 
+## The American Academy
+*2028*  
+Bring The American Academy conceptualized by President Donald J. Trump into fruition.
+
 ## Paul-itics
 ![](../../media/2028-mm-dd-paul-itics.mp4)
 *2028* 🤷  
