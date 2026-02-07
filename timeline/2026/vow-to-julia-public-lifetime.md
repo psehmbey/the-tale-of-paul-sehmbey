@@ -157,7 +157,9 @@ I’m not writing to force a decision or to corner you into a response. I simply
 And if you feel drawn to talk — now or later — I’m here, open and grounded, and I’d genuinely enjoy hearing from you.
 
 With affection,  
-Paul
+Paul  
+
+#PaulTheWise
 
 ## Sage Reawakening / A small Hanukkah light
 ![](../../assets/portraits/2025-12-08-sage-reawakening-apartment.png)
@@ -488,7 +490,7 @@ This experience gifted me:
 ## The Chosen One: Behold the Power of God.
 ![](../../assets/portraits/the-chosen-one-sovereign-awakening.png)  
 *March 18, 1994*  
-#PaulThePowerful
+#PaulTheWise #PaulThePowerful
 
 ## [Grandfather](https://dhanjal.com) was right - I knew it!
 ![](../../assets/yyyy-mm-dd-you-lit-the-forge-i-carry-the-fire-paul-sehmbey.png)  
