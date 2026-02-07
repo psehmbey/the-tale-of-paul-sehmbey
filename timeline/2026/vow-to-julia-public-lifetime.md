@@ -427,7 +427,7 @@ Thank you Derek Makeever and all my SHS MAP classmates and teachers.
 #TheGiver #ForbiddenPerspective
 
 ## The Mask of Sanity
-*2010-2011*  
+*2010*  
 
 ## Genius Strategist: Checkmate Before The War
 ![](../../assets/portraits/the-young-strategist-art-of-war.png)  
