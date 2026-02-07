@@ -140,7 +140,7 @@ Paul Sehmbey
 
 ### Kurama Guardian Alignment: Protective Partnership
 ![](../../assets/portraits/2026-01-18-kurama-guardian-alignment-protective-partnership.png)  
-*1997 onward, if not since [birth](#the-chosen-one-behold-the-power-of-god).*  
+*1995 onward, if not since [birth](#the-chosen-one-behold-the-power-of-god).*  
 #[NineTailsCloak](https://github.com/psehmbey/the-tale-of-paul-a-sehmbey/blob/main/media/2016-nine-tails-cloak.mp4) #[TheImmortalDefender](#last-will-and-testament)
 
 ## Sage Mastery / Things Left Unsaid
@@ -500,6 +500,7 @@ This experience gifted me:
 ## The Chosen One: Behold the Power of God.
 ![](../../assets/portraits/the-chosen-one-sovereign-awakening.png)  
 *March 18, 1994*  
+![](../../media/songs/WhispersInTheDark.mp3)  
 #PaulTheWise #PaulThePowerful
 
 ## [Grandfather](https://dhanjal.com) was right - I knew it!
