@@ -67,6 +67,7 @@ In a professional setting, surrounded by women colleagues and mentors, I made a 
 See date for the meaning of my full name given to me by my mother.
 
 ## My Empire of Earth / United Earth Initiative
+![](../../media/own-the-world.mp4)  
 *TBA*
 ![](../../media/songs/2055.mp3)  
 ![](../../media/songs/DoItMyself.mp3)  
@@ -80,7 +81,8 @@ Thank you for the inspiration, Gerry West. Political proposal and/or stand up co
 Bring The American Academy conceptualized by President Donald J. Trump into fruition and incorporate Glass Solace Academy's A.I. curriculum.
 
 ## Paul-itics
-![](../../media/2028-mm-dd-paul-itics.mp4)
+![](../../media/2028-mm-dd-paul-itics.mp4)  
+![](../../media/the-man-of-tomorrow.mp4)  
 *2028* 🤷  
 ![](../../media/songs/Uprising.mp3)  
 ![](../../media/songs/Renegades.mp3)  
