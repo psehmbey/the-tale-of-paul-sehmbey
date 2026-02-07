@@ -226,6 +226,7 @@ Thank you, City of New York.
 
 ## For Future Generations ✊ Reawakening The Protector 🛡️
 *February 09, 2025*  
+![](../../media/songs/Renegades.mp3)  
 Thank you, Jeremiah Slaughter. Stay out of trouble, kid.
 
 ## Physically Assaulted: No More Basketball 🏀
@@ -258,15 +259,13 @@ Ms. Ahuja was the **Assistant District Attorney assigned to prosecute my case** 
 
 I understand that an ADA represents “the People,” not the individual victim—but even within that role, I expected a basic level of **clarity, honesty, and serious attention to the sexual nature of the assault I reported**. I did not experience that here.
 
-Based on what happened in my case, **I cannot recommend ADA Pious Ahuja**, and I believe future survivors and community members deserve to know how I was treated and how my case was handled.
-
-
+Based on what happened in my case, **I cannot recommend ADA Pious Ahuja**, and I believe future survivors and community members deserve to know how I was treated and how my case was handled.  
+  
 Was this all part of your plan, New York?
 
 ## A Promise: Return to NYC
 ![](../../assets/portraits/the-promised-return-new-york-city.png)  
 *January 20, 2024*  
-![](../../media/songs/Renegades.mp3)  
 #NeverLeavingNewYorkCity #Home #Homeless
 
 ## Julia's Rejection - My Responsibility: Eliminate the Uchiha. ❤️‍🔥🙏😈
