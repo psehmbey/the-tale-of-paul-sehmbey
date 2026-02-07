@@ -20,7 +20,11 @@ Socrates,
 Mark Hammil,
 Robert De Niro (for Stardust, etc.),
 Val Kilmer (for The Prince of Egypt, etc.),
+Hayden Christensen,
 Rosario Dawson,
+Ewan McGregor,
+Lisa Hurley,
+Tyra Banks,
 Harriet Tubman,
 Tech N9ne,
 Krizz Kaliko,
@@ -115,6 +119,9 @@ Strange Music,
 Undercover Prodigy,
 Scholastic,
 PBS,
+Ambar Pharmacy,
+Amato Pharmacy,
+Vapiano's,
 
 ## Ottawa, Ontario, Canada
 
@@ -131,6 +138,8 @@ Eddie Robinson,
 Brett Morales,
 Guillermo Nava,
 (hairstylist on Santana Row),
+Jan (via Dad; Google),
+Jane (via Mom; SJSU),
 
 ### [Tom Matsumoto Elementary School](https://matsumoto.eesd.org)
 Mrs. C.,
@@ -539,9 +548,6 @@ Carl (FYS),
 ## New York, New York, USA
 
 **Julia E. Canick**,
-Ambar Pharmacy,
-Amato Pharmacy,
-Vapiano's,
 Michelle Freedland,
 Brendan T. Marry,
 Jahayra Muñoz,
@@ -557,7 +563,7 @@ Anthony Ameduri,
 Laurie Gallo,
 Liz,
 Sergei (Where Thought Bends),
-Kat,
+Kat (via Moses and probably Angel),
 VOCAL-NY,
 P.O.T.S.,
 Pizza Squad,
@@ -646,6 +652,7 @@ Kevin Maldonado,
 Yvonne Bowman,
 Nakamatsu,
 Aidan & (girlfriend) (IF2),
+Matthew Sgorous
 
 #### Summer Undergraduate Research Program (S.U.R.P.)
 Sophia Allen & M.G.,
@@ -679,6 +686,7 @@ Mira Wooten
 ### Bio-Rad Laboratories
 Hukam Gupta,  
 Yansu Li,  
+Frank,
 Shane,  
 Ra,  
 Ben,  
@@ -690,11 +698,13 @@ Meghan,
 Singh,
 Staff Sgt. Garcia,
 Tran,
+Nguyen,
 
 ## Edge
 
 [White Rose Syndicate](https://swtorfancommunity.com/guilds/blacklight-sk-and-black-rose-syndicate-star-forge),  
 Alethia Preston,  
+Jessica Nieto (Texas),
 (Uber driver OMW back from seeing BMH) (San Diego, CA),  
 
 ### Hewlett Packard Enterprise | HPE
@@ -722,6 +732,8 @@ Laurie,
 Casey Mintz 😎,
 (local Buffalo Wild Wings family),
 Wendy (local library),
+Dave (with Chelsea),
+(woman from out of town who let me walk her back to her hotel and talked to me about Julia),
 
 ## North Carolina, USA
 
@@ -761,6 +773,8 @@ Calvin,
 "Black",
 E.,
 Mason,
+Tracy,
+"911 Baby",
 
 ### 5113 2nd Ave.
 (torta truck),
