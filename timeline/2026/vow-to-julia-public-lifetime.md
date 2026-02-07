@@ -77,7 +77,7 @@ Thank you for the inspiration, Gerry West.
 
 Political proposal and/or stand up coming soon-ish.  
 
-#DontKillMe
+#DontKillMeOrGerry
 
 ## Paul-itics
 ![](../../media/2028-mm-dd-paul-itics.mp4)
