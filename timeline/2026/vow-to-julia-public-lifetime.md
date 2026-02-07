@@ -73,15 +73,11 @@ See date for the meaning of my full name given to me by my mother.
 
 ## Rebranding the KKK
 *TBD*  
-Thank you for the inspiration, Gerry West.  
-
-Political proposal and/or stand up coming soon-ish.  
-
-#DontKillMeOrGerry
+Thank you for the inspiration, Gerry West. Political proposal and/or stand up coming soon-ish.  
 
 ## The American Academy
 *2028*  
-Bring The American Academy conceptualized by President Donald J. Trump into fruition.
+Bring The American Academy conceptualized by President Donald J. Trump into fruition and incorporate Glass Solace Academy's A.I. curriculum.
 
 ## Paul-itics
 ![](../../media/2028-mm-dd-paul-itics.mp4)
@@ -278,13 +274,13 @@ Based on what happened in my case, **I cannot recommend ADA Pious Ahuja**, and I
 ## A Promise: Return to NYC
 ![](../../assets/portraits/the-promised-return-new-york-city.png)  
 *January 20, 2024*  
+![](../../media/songs/Compass.mp3)  
 #NeverLeavingNewYorkCity #Home #Homeless
 
 ## Julia's Rejection - My Responsibility: Eliminate the Uchiha. ❤️‍🔥🙏😈
 ![Kurama fully in control as Paul stands engulfed in fire while Julia walks away, marking the final rejection](../../assets/shared/2023-10-17-kurama-dominion-final-rejection.png)
 *October 17, 2023 — ✅ Final Rejection. December 13-14, 2023 — ✅ Eliminate the Uchiha.*  
 ![](../../media/songs/Faceless.mp3)  
-![](../../media/songs/Compass.mp3)  
 Not him.  
 #DarthJesus #PaulpatinePlagueis
 
@@ -323,18 +319,19 @@ Not him.
 ## Our Last Dinner Together: Veselka
 ![Paul Sehmbey & Julia Canick — Veselka](../../assets/shared/2017-05-dd-veselka-julia.png)
 *May 2017*  
+![](../../media/songs/  
 Julia is portrayed here looking away from me then into the eyes of the man she knew I would become.
 
 ## Graduation to Heartbreak 🎓💔
 ![](../../assets/portraits/2017-05-17-nyu-graduation-skipped-heartbreak-julia.png)
 *May 17, 2017*  
-![](../../media/songs/Arcade.mp3)  
 ![](../../media/songs/Sleepwalker.mp3)  
 (IRL, the heartbreak came before the end of 2016; additionally, I never picked up a graduation cap or gown, and I was out with people after the ceremony - I lived a little longer before I had to leave).  
 
 ## Second Apartment Party Goodbye Hug
 ![](../../assets/shared/2016-second-apartment-party-goodbye-hug.png)
 *2016*  
+![](../../media/songs/  
 After Julia’s second apartment party, as I finished putting on my shoes, I looked up to find she had stepped away from a serious conversation I hadn’t wanted to interrupt. I never felt the distance between us close. One moment she was across the room, and the next she was in my arms. I held her tightly, and in that instant I felt a quiet spark of light rise in my chest—warm, steady, unmistakable. It was a simple goodbye, unannounced and unguarded, and it became the best hug I have ever received.
 
 ## Not-So-[Silent Saviour](https://github.com/psehmbey/the-tale-of-paul-a-sehmbey/blob/main/media/2008-06-dd-the-silent-saviour-%E2%9C%9D%EF%B8%8F.mp4) — WashSquaPa
@@ -346,6 +343,7 @@ Recruiting for the Suzuki Lab in Washington Square Park — when someone showed 
 ## Nourishment
 ![](../../assets/shared/2016-suzuki-lab-julia-beef-sushi-nourishment.png)  
 *2016*  
+![](../../media/songs/  
 
 ## Waking Julia — NYU Neuroscience Guest Lecture
 ![Waking Julia — a quietly reciprocated spark](../../assets/shared/2016-nyu-neuroscience-guest-lecture-spark-awakening.png)
@@ -422,26 +420,27 @@ I never left you, Julia, I just hadn't met you in this lifetime yet, but that's 
 
 No revisionism: This was society's operational failure. If this has not made enough of a lasting impression, I am happy to narrow down my accusation to include the names of specific individuals and organizations.  
 
-#IMustNotTellLies #LearnOrDie #JesusHatesYou
+#IMustNotTellLies #LearnOrDie #JesusHatesYou #FSociety
 
-## Promise to Antara, Kerry Mohnike & SHS MAP: Eliminate The Uchiha
+## My Promise to Antara: Eliminate The Uchiha
 *2010-2011*  
-T.S. Elliot
+Made during T.S. Elliot presentation for Kerry Mohnike's English 11H MAP class.
 
 ## Mein Kampf
 *2010-2011*  
-TODO: Add anecdote of appreciation for SHS library.  
+(TODO: Add anecdote of appreciation for SHS library).  
 
-Thank you Derek Makeever and all my SHS MAP classmates and teachers.  
+Thank you Derek Makeever and my SHS MAP classmates and teachers.  
 
 #TheGiver #ForbiddenPerspective
 
 ## The Mask of Sanity
 *2010*  
+Master of Psychology
 
 ## Genius Strategist: Checkmate Before The War
 ![](../../assets/portraits/the-young-strategist-art-of-war.png)  
-**  
+*2004-2006 — verify*  
 #BobbyFischer #SunTzu
 
 ## The Child of Prophecy / The Boy Who Called The Fire 🔯
@@ -452,13 +451,13 @@ Thank you Derek Makeever and all my SHS MAP classmates and teachers.
 ![](../../media/songs/Demons.m4a)  
 #[SpecialGradeSorcerer](https://github.com/psehmbey/the-tale-of-paul-a-sehmbey/blob/main/media/2026-01-06-special-grade-sorcerer-%F0%9F%94%AF%E2%99%BE%EF%B8%8F.mp4) #[NineTailsCloak](https://github.com/psehmbey/the-tale-of-paul-a-sehmbey/blob/main/media/2016-nine-tails-cloak.mp4)
 
-## 666
+## 666 — The Demon
 *June 6, 2006*  
 
 ## The Holocaust Museum — An Ally ✡️
 *June 2005 — Europe Trip*  
 
-## Promise To Sneha: I'll Always Be Around To Save The Day
+## My Promise To Sneha: "[I] will Always Be Around To Save The Day"
 *2002-2003*  
 #TheBoyWhoLived
 
@@ -469,7 +468,7 @@ Thank you Derek Makeever and all my SHS MAP classmates and teachers.
 
 ## The Boy Who Would Be 🦇 / The First Signal
 ![](../../assets/portraits/where-destiny-began-the-batman-book.png)  
-**  
+*1998*  
 ![](../../media/songs/GOHARD.mp3)  
 Among my earliest memories, I recall the moment I began identifying as Bruce Wayne.
 
@@ -492,10 +491,10 @@ This experience gifted me:
 #LegendaryWorkEthic #IncorruptibleSoul
 
 ## Brother / Acting Father
-*1996*  
+*September 1996*  
 
 ## Remarkable Intelligent Genius
-*March 1994 to September 1996*  
+*1994*  
 
 ## The Chosen One: Behold the Power of God.
 ![](../../assets/portraits/the-chosen-one-sovereign-awakening.png)  
