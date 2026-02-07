@@ -83,6 +83,7 @@ Political proposal and/or stand up coming soon-ish.
 ![](../../media/2028-mm-dd-paul-itics.mp4)
 *2028* 🤷  
 ![](../../media/songs/Uprising.mp3)  
+![](../../media/songs/Renegades.mp3)  
 Two terms, not two consecutive terms.
 
 ## Julie-oolie-ulia
@@ -226,7 +227,6 @@ Thank you, City of New York.
 
 ## For Future Generations ✊ Reawakening The Protector 🛡️
 *February 09, 2025*  
-![](../../media/songs/Renegades.mp3)  
 Thank you, Jeremiah Slaughter. Stay out of trouble, kid.
 
 ## Physically Assaulted: No More Basketball 🏀
@@ -236,7 +236,7 @@ Another love lost.
 
 Thanks for always having my back, Donald Singleton, and thank you, Goon.  
 
-#LongJohnSilver #PirateKing #PirateKings
+#LongJohnSilver #PirateKing #PirateKings #FSociety
 
 ## Sexually Assaulted By An Active Sexual Predator: Antonio Melendez
 *July 2024 — Day Damn One at 5113 2nd Avenue in Brooklyn.*  
@@ -261,7 +261,9 @@ Ms. Ahuja was the **Assistant District Attorney assigned to prosecute my case** 
 
 I understand that an ADA represents “the People,” not the individual victim—but even within that role, I expected a basic level of **clarity, honesty, and serious attention to the sexual nature of the assault I reported**. I did not experience that here.
 
-Based on what happened in my case, **I cannot recommend ADA Pious Ahuja**, and I believe future survivors and community members deserve to know how I was treated and how my case was handled.
+Based on what happened in my case, **I cannot recommend ADA Pious Ahuja**, and I believe future survivors and community members deserve to know how I was treated and how my case was handled.  
+
+#IntoxicationIsNotConsent #FSociety
 
 ## A Promise: Return to NYC
 ![](../../assets/portraits/the-promised-return-new-york-city.png)  
