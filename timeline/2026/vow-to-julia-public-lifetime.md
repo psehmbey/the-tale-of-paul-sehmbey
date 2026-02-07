@@ -308,11 +308,11 @@ Thank you, Chelsea and family of Jehovah's Witnesses.
 
 #Hulkbuster
 
-## Meltdown 💔⏳🫠
+## The Waste Land 💔⏳🫠
 ![Meltdown begins.](../../assets/shared/2022-07-dd-edge-meltdown.png)  
-*2022*   
+*2022-2023*   
 ![](../../media/songs/TheNightWeMet.mp3)  
-Not him.
+Edge meltdown. Not him.
 
 ## Glass Solace Entertainment (GSE)
 *January 1, 2018*  
@@ -426,7 +426,8 @@ No revisionism: This was society's operational failure. If this has not made eno
 
 ## My Promise to Antara: Eliminate The Uchiha
 *2010-2011*  
-Made during T.S. Elliot presentation for Kerry Mohnike's English 11H MAP class.
+Made during T.S. Eliot presentation for Kerry Mohnike's English 11H MAP class.  
+#TheWasteLand
 
 ## Mein Kampf
 *2010-2011*  
@@ -442,7 +443,7 @@ Master of Psychology
 
 ## Genius Strategist: Checkmate Before The War
 ![](../../assets/portraits/the-young-strategist-art-of-war.png)  
-*2004-2006 — verify*  
+*2004-2006 — TODO: verify dates of first-place tournament victories*  
 #BobbyFischer #SunTzu
 
 ## The Child of Prophecy / The Boy Who Called The Fire 🔯
