@@ -83,7 +83,6 @@ Political proposal and/or stand up coming soon-ish.
 ![](../../media/2028-mm-dd-paul-itics.mp4)
 *2028* 🤷  
 ![](../../media/songs/Uprising.mp3)  
-![](../../media/songs/Renegades.mp3)  
 Two terms, not two consecutive terms.
 
 ## Julie-oolie-ulia
@@ -238,14 +237,36 @@ Thanks for always having my back, Donald Singleton, and thank you, Goon.
 
 #LongJohnSilver #PirateKing #PirateKings
 
-## Sexually Assaulted / Encountering An Active Sexual Predator: A.M.
+## Sexually Assaulted By An Active Sexual Predator: Antonio Melendez
 *July 2024 — Day Damn One at 5113 2nd Avenue in Brooklyn.*  
 ![](../../media/songs/CantBeBroken.mp3)  
-Word, was this all part of your plan, New York?
+My experience with **ADA Pious Ahuja** at the **Brooklyn District Attorney’s Office** was profoundly disappointing and had serious consequences for how my case was handled.
+
+Ms. Ahuja was the **Assistant District Attorney assigned to prosecute my case** after I reported being **sexually assaulted** by an individual named **Antonio Melendez**. In one of the most vulnerable moments of my life, I expected clear, accurate, protective guidance from the prosecutor responsible for my case. Instead, I walked away feeling **misled, unprotected, and harmed by how it was handled**.
+
+### Key Issues I Experienced
+
+- The guidance and explanations I received from Ms. Ahuja **did not line up with what the court and DA’s process actually required**, which left me confused and weakened my position at critical points.
+
+- The case ultimately ended up being treated as a **non-sexual “attempted assault” type matter**, rather than reflecting the **sexual nature of what I reported**, which meant he did **not face the kind of consequences or oversight I believed were appropriate to what happened to me**.
+
+- I was **previously told by shelter staff** that the man who assaulted me had a **history of similar behavior**, which made the lack of strong, precise prosecution even more alarming to me.
+
+- Communication from Ms. Ahuja felt **unclear, inconsistent, and not trauma-informed**, especially for a case involving unwanted sexual contact and personal safety.
+
+### Closing Statement
+
+I understand that an ADA represents “the People,” not the individual victim—but even within that role, I expected a basic level of **clarity, honesty, and serious attention to the sexual nature of the assault I reported**. I did not experience that here.
+
+Based on what happened in my case, **I cannot recommend ADA Pious Ahuja**, and I believe future survivors and community members deserve to know how I was treated and how my case was handled.
+
+
+Was this all part of your plan, New York?
 
 ## A Promise: Return to NYC
 ![](../../assets/portraits/the-promised-return-new-york-city.png)  
 *January 20, 2024*  
+![](../../media/songs/Renegades.mp3)  
 #NeverLeavingNewYorkCity #Home #Homeless
 
 ## Julia's Rejection - My Responsibility: Eliminate the Uchiha. ❤️‍🔥🙏😈
