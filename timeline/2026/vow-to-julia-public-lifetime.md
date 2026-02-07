@@ -391,7 +391,7 @@ Thank you Derek Makeever and all my SHS MAP classmates and teachers.
 **  
 #BobbyFischer #SunTzu
 
-## The Child of Prophecy / The Boy Who Called The Fire
+## The Child of Prophecy / The Boy Who Called The Fire 🔯
 ![](../../assets/portraits/the-boy-who-called-the-fire.png)  
 *2001 onward, if not since [birth](#the-chosen-one-behold-the-power-of-god).  
 2007-2009 — Communication with Lucifer at the direction of God and always under His protection.  
