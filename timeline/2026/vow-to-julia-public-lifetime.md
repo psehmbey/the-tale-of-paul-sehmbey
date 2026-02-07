@@ -140,6 +140,8 @@ Paul Sehmbey
 ![](../../assets/portraits/2025-12-20-sage-mastery.png)
 *December 20, 2025*  
 ![](../../media/songs/BeginAgainsakuraburstRemix.mp3)  
+#PaulTheWise  
+
 Excerpt from a private letter written on December 20, 2025, preserved here as part of a personal archive:
 
 Dear Julia,
@@ -157,9 +159,7 @@ I’m not writing to force a decision or to corner you into a response. I simply
 And if you feel drawn to talk — now or later — I’m here, open and grounded, and I’d genuinely enjoy hearing from you.
 
 With affection,  
-Paul  
-
-#PaulTheWise
+Paul
 
 ## Sage Reawakening / A small Hanukkah light
 ![](../../assets/portraits/2025-12-08-sage-reawakening-apartment.png)
