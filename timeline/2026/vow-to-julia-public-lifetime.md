@@ -130,7 +130,7 @@ Paul Sehmbey
   - closure of their shared history
   - recognition that Revan must confront the future as himself, not as a redeemed shell
 
-## Kurama Guardian Alignment: Protective Partnership
+### Kurama Guardian Alignment: Protective Partnership
 ![](../../assets/portraits/2026-01-18-kurama-guardian-alignment-protective-partnership.png)  
 *1997 onward, if not since [birth](#the-chosen-one-behold-the-power-of-god).*  
 #[NineTailsCloak](https://github.com/psehmbey/the-tale-of-paul-a-sehmbey/blob/main/media/2016-nine-tails-cloak.mp4) #[TheImmortalDefender](#last-will-and-testament)
