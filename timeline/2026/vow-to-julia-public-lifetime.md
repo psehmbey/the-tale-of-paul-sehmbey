@@ -424,6 +424,7 @@ Thank you Derek Makeever and all my SHS MAP classmates and teachers.
 #TheGiver #ForbiddenPerspective
 
 ## The Mask of Sanity
+![](../../media/songs/RedNose.mp3)  
 *2010-2011*  
 
 ## Genius Strategist: Checkmate Before The War
