@@ -119,6 +119,7 @@ Paul Sehmbey
 
 ### Proof of Superman + (Julia's Direction 🙏🔝🫡 | Only A Dream)
 ![](../../assets/shared/2026-01-29-after-the-message-embers-of-silence.png)  
+![](../../media/mischief-managed-thank-you-kurama-🧡.mp4)  
 ![](../../media/songs/FallingDown.mp3)  
 ![](../../media/songs/VoisSurTonChemin.mp3)  
 ![](../../media/songs/Infinity.mp3)  
