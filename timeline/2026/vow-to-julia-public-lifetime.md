@@ -125,7 +125,11 @@ Implements citizen review boards, sunset clauses, data minimization, and explici
 
 ## Rebranding the KKK
 *TBD*  
-Thank you for the inspiration, Gerry West. Political proposal and/or stand up coming soon-ish.  
+
+A proposal focused on dismantling extremist identity, recruitment pipelines, and legacy narratives through exposure, ridicule, and deradicalization.
+
+Thank you for the inspiration, Gerry West.  
+Political proposal and/or stand-up coming soon-ish.
 
 ## The American Academy
 *2028*  
