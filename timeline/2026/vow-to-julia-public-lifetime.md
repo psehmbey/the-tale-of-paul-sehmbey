@@ -321,7 +321,7 @@ Edge meltdown. Not him.
 ## Our Last Dinner Together: Veselka
 ![Paul Sehmbey & Julia Canick — Veselka](../../assets/shared/2017-05-dd-veselka-julia.png)
 *May 2017*  
-![](../../media/songs/  
+![](../../media/songs/Lechemin.mp3)  
 Julia is portrayed here looking away from me then into the eyes of the man she knew I would become.
 
 ## Graduation to Heartbreak 🎓💔
