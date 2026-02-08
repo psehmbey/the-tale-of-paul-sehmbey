@@ -384,7 +384,9 @@ Julia called me a "tech genius," prior to which [I didn't believe I was](#recipr
 ## A Test: Impressing Victoria (and vice-versa)
 ![](../../assets/portraits/2016-impressing-victoria.png)  
 *2016*  
-Hit 'er with that #ShadowCloneJutsu 😉
+Hit 'er with that #ShadowCloneJutsu 😉  
+
+#godOfGenjutsu
 
 Excerpt from a private letter written on January 3, 2026, shared here as part of a personal archive acknowledging influences that helped refine how I listen, grow, and show up with intention:
 
