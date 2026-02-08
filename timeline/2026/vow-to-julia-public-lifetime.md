@@ -457,6 +457,10 @@ Master of Psychology
 ## 666 — The Demon
 *June 6, 2006*  
 
+## Santa Clara University School of Law
+*2006*  
+...at 12 ans with Mom.
+
 ## The Holocaust Museum — An Ally ✡️
 *June 2005 — Europe Trip*  
 
