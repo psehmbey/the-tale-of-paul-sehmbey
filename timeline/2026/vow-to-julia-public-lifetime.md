@@ -126,10 +126,11 @@ Implements citizen review boards, sunset clauses, data minimization, and explici
 ## Rebranding the KKK
 *TBD*  
 
-A proposal focused on dismantling extremist identity, recruitment pipelines, and legacy narratives through exposure, ridicule, and deradicalization.
+A proposal focused on dismantling extremist identity, recruitment pipelines, and legacy narratives through exposure, education, and deradicalization—without replacing one form of racial extremism with another.
 
-Thank you for the inspiration, Gerry West.  
-Political proposal and/or stand-up coming soon-ish.
+The objective is the elimination of dehumanizing ideology, not the eradication of people: affirming the dignity, safety, and continued existence of all human populations while rejecting movements built on hierarchy, fear, or exclusion.
+
+Principle: **No people are disposable; the eradication of any group—by violence, coercion, or neglect—is illegitimate, regardless of ideology, history, or power.**
 
 ## The American Academy
 *2028*  
