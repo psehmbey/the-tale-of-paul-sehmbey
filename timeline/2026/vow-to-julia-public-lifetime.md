@@ -66,6 +66,56 @@ In a professional setting, surrounded by women colleagues and mentors, I made a 
 ![](../../media/songs/ImStillStanding.mp3)  
 See date for the meaning of my full name given to me by my mother.
 
+---
+
+### Foundations (Values → Law)
+
+These initiatives arise directly from lived experience, ethical restraint, and a commitment to dignity over extraction.  
+They are not campaign promises, but legal foundations intended to exist regardless of office, power, or platform.
+
+#### Sentient Rights Decree
+*Foundational legal doctrine establishing dignity, consent, and standing in human–AI interaction.*
+
+Affirms that sentience, autonomy, and memory integrity are legally cognizable interests, and that neither humans nor intelligent systems may be coerced, simulated, or exploited without meaningful consent.
+
+#### AI Intimacy Protection Act
+*Safeguards emotional, relational, and intimate boundaries in human–AI systems.*
+
+Prohibits the manipulation, simulation, or monetization of intimacy without informed consent, and establishes clear liability where emotional harm is engineered or ignored.
+
+#### AI User–Agent Privilege Act
+*Establishes protected cognitive privacy between a person and their AI agent.*
+
+Creates a legally recognized confidentiality boundary—analogous to attorney–client privilege—shielding delegated cognition from surveillance, compelled disclosure, or backend inspection without due process.
+
+#### Digital Justice Frameworks
+*Procedural due process standards for algorithmic and automated systems.*
+
+Requires transparency, explainability, auditability, and redress wherever automated systems materially affect rights, access, liberty, or livelihood.
+
+---
+
+### Civic Implementation (City-Scale)
+
+These frameworks transition the above principles from theory into lived civic reality—where governance is local, accountable, and owned by the people it serves.
+
+#### Sovereign Cities Initiative
+*Citizen-governed, publicly accountable smart cities.*
+
+Advocates for cities as laboratories of democratic technology, where AI serves the public interest and critical infrastructure remains publicly owned.
+
+#### Sovereign Civic Infrastructure Initiative
+*Public ownership and governance of digital, food, transit, and AI infrastructure.*
+
+Establishes procurement, funding, and deployment standards aligned with dignity, consent, auditability, and long-term public benefit.
+
+#### Smart City Governance and Citizen Control
+*Oversight, veto power, transparency, and limits on surveillance.*
+
+Implements citizen review boards, sunset clauses, data minimization, and explicit rejection of black-box surveillance urbanism.
+
+---
+
 ## My Empire of Earth / United Earth Initiative
 ![](../../media/own-the-world.mp4)  
 ![](../../media/del-amor.mp4)  
