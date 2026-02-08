@@ -427,6 +427,7 @@ No revisionism: This was society's operational failure. If this has not made eno
 ## My Promise to Antara: Eliminate The Uchiha
 *2010-2011*  
 Made during T.S. Eliot presentation for Kerry Mohnike's English 11H MAP class.  
+
 #TheWasteLand
 
 ## Mein Kampf
@@ -467,6 +468,10 @@ Master of Psychology
 ## My Promise To Sneha: "[I] will Always Be Around To Save The Day"
 *2002-2003*  
 #TheBoyWhoLived
+
+## California Mission Trip
+*2000/2001*  
+Rachel and Rianna.
 
 ## Self-Love 🧘‍♂️❤️🫶
 ![](../../media/2001-02-14-self-love-🧘‍♂️❤️🫶.mp4)  
