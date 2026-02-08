@@ -384,9 +384,7 @@ Julia called me a "tech genius," prior to which [I didn't believe I was](#recipr
 ## A Test: Impressing Victoria (and vice-versa)
 ![](../../assets/portraits/2016-impressing-victoria.png)  
 *2016*  
-Hit 'er with that #ShadowCloneJutsu 😉  
-
-#godOfGenjutsu
+Hit 'er with that #ShadowCloneJutsu 😉
 
 Excerpt from a private letter written on January 3, 2026, shared here as part of a personal archive acknowledging influences that helped refine how I listen, grow, and show up with intention:
 
@@ -408,6 +406,8 @@ I wish you a year filled with health, fulfillment, and moments that feel quietly
 
 Warmly,  
 Paul Sehmbey  
+
+#godOfGenjutsu
 
 ## Enter: Wendy Suzuki
 ![](../../assets/shared/2016-03-dd-suzuki-sensei.png)  
