@@ -464,6 +464,10 @@ Master of Psychology
 *2002-2003*  
 #TheBoyWhoLived
 
+## Self-Love 🧘‍♂️❤️🫶
+![](../../media/2001-02-14-self-love-🧘‍♂️❤️🫶.mp4)  
+*February 14, 2001*  
+
 ## ❤️‍🔥 Twin Flames ❤️‍🔥
 ![](../../assets/shared/2016-twin-flame-origin-childhood-connection.png)  
 *1999*  
