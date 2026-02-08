@@ -122,6 +122,7 @@ Implements citizen review boards, sunset clauses, data minimization, and explici
 *TBA*
 ![](../../media/songs/2055.mp3)  
 ![](../../media/songs/DoItMyself.mp3)  
+![](../../media/songs/ATouchOfClassAroundtheWorld.mp3)  
 
 ## Rebranding the KKK
 *TBD*  
