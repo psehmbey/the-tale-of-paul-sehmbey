@@ -283,8 +283,8 @@ Based on what happened in my case, **I cannot recommend ADA Pious Ahuja**, and I
 ![Kurama fully in control as Paul stands engulfed in fire while Julia walks away, marking the final rejection](../../assets/shared/2023-10-17-kurama-dominion-final-rejection.png)
 *October 17, 2023 — ✅ Final Rejection. December 13-14, 2023 — ✅ Eliminate the Uchiha.*  
 ![](../../media/songs/Faceless.mp3)  
-Not him.  
-#DarthJesus #PaulpatinePlagueis
+
+#DarthJesus #PaulpatinePlagueis #NotHim
 
 ## Good Advice: Trust Love
 ![](../../assets/portraits/kundalini-kendall.jpg)  
@@ -308,11 +308,22 @@ Thank you, Chelsea and family of Jehovah's Witnesses.
 
 #Hulkbuster
 
-## The Waste Land 💔⏳🫠
+## Hewlett Packard Enterprise | HPE
+*October 4, 2021 — April 14, 2023*  
+
+### The Waste Land 💔⏳🫠
 ![Meltdown begins.](../../assets/shared/2022-07-dd-edge-meltdown.png)  
 *2022-2023*   
 ![](../../media/songs/TheNightWeMet.mp3)  
-Edge meltdown. Not him.
+Edge meltdown.  
+
+#NotHim  
+
+### L.O.A.
+*February 1, 2023*  
+
+### Business Trip To San Jose, CA
+*June 12, 2022 —*  
 
 ## Glass Solace Entertainment (GSE)
 *January 1, 2018*  
