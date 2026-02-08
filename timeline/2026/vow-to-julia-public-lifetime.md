@@ -428,35 +428,30 @@ No revisionism: This was society's operational failure. If this has not made eno
 *2010-2011*  
 Made during T.S. Eliot presentation for Kerry Mohnike's English 11H MAP class.  
 
-#TheWasteLand
+#[TheWasteLand](#the-waste-land-) 
 
 ## Mein Kampf
 *2010-2011*  
-(TODO: Add anecdote of appreciation for SHS library).  
-
-Thank you Derek Makeever and my SHS MAP classmates and teachers.  
+(TODO: Add anecdote of appreciation for SHS library). Thank you Derek Makeever and my SHS MAP classmates and teachers.  
 
 #TheGiver #ForbiddenPerspective
 
-## The Mask of Sanity
+## The Mask of Sanity 🎭 A Master of Psychology
 *2010*  
-Master of Psychology
 
 ## Genius Strategist: Checkmate Before The War
 ![](../../assets/portraits/the-young-strategist-art-of-war.png)  
 *2004-2006 — TODO: verify dates of first-place tournament victories*  
+
 #BobbyFischer #SunTzu
 
 ## The Child of Prophecy / The Boy Who Called The Fire 🔯
 ![](../../assets/portraits/the-boy-who-called-the-fire.png)  
 *1999 onward, if not since [birth](#the-chosen-one-behold-the-power-of-god).  
+June 6, 2006 — The Demon
 2007-2009 — Communication with Lucifer at the direction of God and always under His protection.  
 2008-2009 — High Magic: Theory & Practice by Frater U.:D.: shared with Sean Ellner in 9th grade.*  
-![](../../media/songs/Demons.m4a)  
 #[SpecialGradeSorcerer](https://github.com/psehmbey/the-tale-of-paul-a-sehmbey/blob/main/media/2026-01-06-special-grade-sorcerer-%F0%9F%94%AF%E2%99%BE%EF%B8%8F.mp4) #[NineTailsCloak](https://github.com/psehmbey/the-tale-of-paul-a-sehmbey/blob/main/media/2016-nine-tails-cloak.mp4)
-
-## 666 — The Demon
-*June 6, 2006*  
 
 ## Santa Clara University School of Law
 *2006*  
@@ -476,6 +471,7 @@ Rachel and Rianna.
 ## Self-Love 🧘‍♂️❤️🫶
 ![](../../media/2001-02-14-self-love-🧘‍♂️❤️🫶.mp4)  
 *February 14, 2001*  
+...demonstrated publicly.
 
 ## ❤️‍🔥 Twin Flames ❤️‍🔥
 ![](../../assets/shared/2016-twin-flame-origin-childhood-connection.png)  
