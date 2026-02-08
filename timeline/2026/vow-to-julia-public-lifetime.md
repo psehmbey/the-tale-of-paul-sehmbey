@@ -234,6 +234,7 @@ Thank you, City of New York.
 #FSociety
 
 ## For Future Generations ✊ Reawakening The Protector 🛡️
+![](../../media/LukeSkywalkerisTerrifying.mp4)  
 *February 09, 2025*  
 Thank you, Jeremiah Slaughter. Stay out of trouble, kid.
 
@@ -271,7 +272,7 @@ I understand that an ADA represents “the People,” not the individual victim�
 
 Based on what happened in my case, **I cannot recommend ADA Pious Ahuja**, and I believe future survivors and community members deserve to know how I was treated and how my case was handled.  
 
-#IntoxicationIsNotConsent #FSociety
+#IntoxicationIsNotConsent #NotPious #FSociety
 
 ## A Promise: Return to NYC
 ![](../../assets/portraits/the-promised-return-new-york-city.png)  
